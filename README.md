@@ -15,6 +15,10 @@ Popular Clicker Games
 
 [geometry arrow](https://geometryarrow.com/)
 
+[planet-clicker](https://bearclicker.org/en/planet-clicker)
+
+[planet-clicker 2](https://bearclicker.org/en/planet-clicker-2)
+
 
 
 # **How to Play Clicker Games**  
