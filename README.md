@@ -5,8 +5,11 @@ Welcome to the exciting realm of [Clicker Games](https://bearclicker.org/en), fi
 
 Popular Clicker Games
 [Bear Clicker](https://bearclicker.org/en)
+
 [Chill Guy Clicker](https://bearclicker.org/en/chillguyclicker)
+
 [duck duck clicker](https://bearclicker.org/en/duckduckclicker)
+
 [doggo clicker](https://bearclicker.org/en/doggoclicker)
 
 
