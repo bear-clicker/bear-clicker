@@ -1,9 +1,10 @@
 ##  Awesome Clicker Games!
-👉👉 Click to Play Clicker Games
+👉👉 Click to Play [Clicker Games](https://bearclicker.org/en)
 
-Welcome to the exciting realm of [Clicker Games](https://bearclicker.org/en), find the world of best clicker game
+Welcome to the exciting realm of Clicker Games, find the world of best clicker game
 
 Popular Clicker Games
+
 [Bear Clicker](https://bearclicker.org/en)
 
 [Chill Guy Clicker](https://bearclicker.org/en/chillguyclicker)
