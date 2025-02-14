@@ -13,6 +13,8 @@ Popular Clicker Games
 
 [doggo clicker](https://bearclicker.org/en/doggoclicker)
 
+[geometry arrow](https://geometryarrow.com/)
+
 
 
 # **How to Play Clicker Games**  
