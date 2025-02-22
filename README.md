@@ -19,7 +19,9 @@ Popular Clicker Games
 
 [planet-clicker 2](https://bearclicker.org/en/planet-clicker-2)
 
+[lumina brush](https://luminarbrush.com/)
 
+[career dreamer](https://careerdreamer.org/)
 
 # **How to Play Clicker Games**  
 Dive into the world of idle progression games with these strategic tips to elevate your experience:
