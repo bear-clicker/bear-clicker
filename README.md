@@ -23,6 +23,18 @@ Popular Clicker Games
 
 [career dreamer](https://careerdreamer.org/)
 
+[drive beyond horizons](https://drivebeyondhorizons.pro)
+
+[drive beyond horizons v1](https://drivebeyondhorizons.net)
+
+[drive beyond horizons v2](https://drivebeyondhorizons.app)
+
+[fortzonebattleroyale](https://fortzonebattleroyale.com/)
+
+[survivalrace](https://survivalrace.app)
+
+[timeshooter](https://timeshooter.org)
+
 # **How to Play Clicker Games**  
 Dive into the world of idle progression games with these strategic tips to elevate your experience:
 
