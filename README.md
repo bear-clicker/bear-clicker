@@ -35,6 +35,8 @@ Popular Clicker Games
 
 [timeshooter](https://timeshooter.org)
 
+[fnaf in real time](https://fnafinrealtime.com/)
+
 # **How to Play Clicker Games**  
 Dive into the world of idle progression games with these strategic tips to elevate your experience:
 
