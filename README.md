@@ -29,6 +29,8 @@ Popular Clicker Games
 
 [drive beyond horizons v2](https://drivebeyondhorizons.app)
 
+[drive beyond horizons v3](https://drive-beyond-horizons.com)
+
 [fortzonebattleroyale](https://fortzonebattleroyale.com/)
 
 [survivalrace](https://survivalrace.app)
