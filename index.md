@@ -1,4 +1,4 @@
-##  Awesome Clicker Games!
+#  Awesome Clicker Games!
 👉👉 Click to Play [Clicker Games](https://bearclicker.org/en)
 
 Welcome to the exciting realm of Clicker Games, find the world of best clicker game
@@ -39,7 +39,7 @@ Popular Clicker Games
 
 [fnaf in real time](https://fnafinrealtime.com/)
 
-# **How to Play Clicker Games**  
+## **How to Play Clicker Games**  
 Dive into the world of idle progression games with these strategic tips to elevate your experience:
 
 ###  **Phase 1: Kickstart Manual Actions**  
